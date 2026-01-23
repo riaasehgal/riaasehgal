@@ -1,5 +1,5 @@
 # 💫 About Me:
-Cybersecurity student obsessed with Oracle (Barbara Gordon)🦇 <br>Currently pursuing a degree in Cyber Security 🔓 <br>
+Cybersecurity student 🔓 <br>
 
 
 # 💻 Tech Stack:
